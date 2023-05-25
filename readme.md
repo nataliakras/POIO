@@ -1,1 +1,2 @@
+Wiecej zmian z innego brancha
 ZMIANAAAAAAAAAAaaaaaaaaaaaaaaAAAAaaaAAAaAa
